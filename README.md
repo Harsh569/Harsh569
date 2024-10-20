@@ -1,3 +1,6 @@
+![Harshad Sonawane](https://github.com/user-attachments/assets/abbc5ade-47c9-4a22-8a70-9c9525702fcd)
+
+
 ### Hi there 👋 I'm Harshad Sonawane
 
 👩‍💻 About Me
